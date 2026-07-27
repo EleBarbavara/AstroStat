@@ -1,0 +1,1 @@
+# AstroStat school
